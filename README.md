@@ -89,7 +89,7 @@
 
 ## 📫 Connect With Me
 
-* 📧 Email: [your-email@example.com](mailto:your-email@example.com)
+* 📧 Email: rsanju.3312@gmail.com
 * 💼 LinkedIn: your-linkedin-link
 * 🌐 Portfolio: (add later)
 
